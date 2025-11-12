@@ -7,6 +7,7 @@
 ## 🚀 About Me
 - 💼 Student in **STT Terpadu Nurul Fikri**
 - 🔐 deputy leader of [NETS](https://www.instagram.com/nets.sttnf/) (Networking & Infrastructure STT-NF)
+- 🔐 Public Relations Staff of [Mapala Halmahera](https://www.instagram.com/mapala_halmahera/) (Mahasiswa Pecinta Alam STT-NF)
 
 ### 🎮 My GitHub Activity (Pac-Man Style!)
 
